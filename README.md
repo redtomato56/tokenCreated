@@ -1,3 +1,5 @@
+Please add me as an Agent Developer [Published] on Discord, my discord username is redtomato#537
+
 # New Token Agent
 
 ## Description
